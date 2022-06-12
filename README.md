@@ -1,0 +1,1 @@
+# opatrunek-na-ratunek
